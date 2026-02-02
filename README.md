@@ -54,8 +54,11 @@ From the moment we "Conquered" nature, pride has blinded our eyes, causing us to
 **Epilogue:**
 Humanity has spent the last three hundred years trying to become God, attempting to build immortal machines. Now, we must learn to be the apprentices of nature. In the torrent of entropy, we shall borrow those eternal physical pillars to prop up our road to the stars.
 
+*The insights shared above are merely my personal "retrospective reflections." You are expected to cultivate your own profound understanding, rather than settling for a mediocre "copy-and-paste" replication.*
 
-`To be continued...`
+*From this moment on, let us dance with the Universe.*
+
+**`To be continued...`**
 
 
 
@@ -118,8 +121,11 @@ Humanity has spent the last three hundred years trying to become God, attempting
 **结语：**
 人类过去三百年都在试图把自己变成上帝，想制造出不朽的机器。现在，我们要学会做大自然的学徒。在熵增的洪流中，借用那永恒不变的物理支柱，来撑起我们通往星辰的道路。
 
+*以上仅代表我个人的“观后感”。你们需要建立属于自己的深度理解，而非仅仅止步于平庸的“复制粘贴”。*
 
-`待续...`
+*今后，让我们，与宇宙共舞。*
+
+**`待续...`**
 
 
 ---
